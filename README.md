@@ -9,7 +9,7 @@
 
 - Penso em trabalhar em casa com Marketing Digital
 
-- Nas horas vagas pratico Jiu-Jitsu e Futebol
+- Nas horas vagas pratico Futebol
 
 - 📫 Me encontre pelo e-mail **tunadospvp@gmail.com**
 
